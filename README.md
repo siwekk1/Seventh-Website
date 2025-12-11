@@ -5,3 +5,7 @@ Hello, i learned some new properties in CSS
 I practiced make form again, soon (probably few days) i'm gonna try backend ˙✧˖°🦊 ༘ ⋆｡˚
 
 <img width="1082" height="783" alt="Screenshot from 2025-12-11 10-06-24" src="https://github.com/user-attachments/assets/32b1989c-bcc9-47a0-9b3d-4594b383668b" />
+
+
+https://github.com/user-attachments/assets/df250a36-0901-43a6-b3bf-5da6301cc66e.mp4
+
